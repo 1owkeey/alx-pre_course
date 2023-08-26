@@ -1,1 +1,1 @@
-THIS IS NOT EMPTY
+I'm not bullish
